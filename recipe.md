@@ -1,0 +1,4 @@
+Step 1
+In a medium bowl, mix the ketchup with the mayonnaise, pickles, vinegar, dry mustard, cayenne and Old Bay; season with salt and pepper. Refrigerate until ready to serve.
+Step 2
+Light a grill or preheat a grill pan. In a large bowl, season the chuck with 2 teaspoons of kosher salt and 1/2 teaspoon of pepper. Gently mix the seasonings into the meat and shape into four 3/4-inch-thick patties. Grill the hamburgers over moderately high heat for about 4 minutes per side for medium-rare. Set the burgers on the buns, top with the ketchup sauce, lettuce, tomato, cheese, bacon and avocado and serve.
